@@ -1,1 +1,0 @@
-# Mekan32Odev2
